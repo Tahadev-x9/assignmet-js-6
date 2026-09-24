@@ -1,4 +1,9 @@
-✨ Modern project banner
+✨ Modern project banner: 
+
+
+
+
+including the project cost management and following partion cost as it is
 📖 Project description
 🚀 Features
 🛠️ Technologies Used
