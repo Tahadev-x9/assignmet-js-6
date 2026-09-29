@@ -1,5 +1,6 @@
 ✨ Modern project banner: 
-
+good projext 
+need more briefing regardi g that also another function in that so keep going yoo man.. 
 
 
 
