@@ -16,3 +16,5 @@ including the project cost management and following partion cost as it is
 📄 License
 👨‍💻 Author section with your GitHub profile
 ⭐ Professional badges (GitHub, HTML, CS) 
+kinda trying best work and best modal for the doing era work flow .. 
+This work lead to an emotional and generational team one. 
