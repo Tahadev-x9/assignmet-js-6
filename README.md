@@ -18,3 +18,4 @@ including the project cost management and following partion cost as it is
 ⭐ Professional badges (GitHub, HTML, CS) 
 kinda trying best work and best modal for the doing era work flow .. 
 This work lead to an emotional and generational team one. 
+hloo one one two twoo three three four four five five six yo mann.. 
